@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @neel0907
 - 👀 I’m interested in having interaction on skilled people while learning from them
 - 🌱 I’m currently learning how to properly use github
-- 💞️ I’m looking to collaborate on mostly women in there 30s
+- 💞️ I’m looking to collaborate on people mostly who likes me 
 - 📫 How to reach me: call me from my phone number 09157323569
 - 😄 Pronouns: my heart is filled with sweetness
 - ⚡ Fun fact: Did you know that having a good sense of humor can actually boost your immune system?
